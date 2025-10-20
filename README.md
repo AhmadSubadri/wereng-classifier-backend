@@ -357,7 +357,7 @@ MIT License
 
 ## 👨‍💻 Author
 
-Dibuat dengan ❤️ untuk pertanian Indonesia
+Dibuat dengan ❤️ Ahmad Subadri (Abadbatok\_) untuk pertanian Indonesia
 
 ---
 
